@@ -6,7 +6,7 @@
 
 **网站**
 
-[https://lidafu.top](https://lidafu.top)
+(https://lidafu.top)
 
 **语言**
 
