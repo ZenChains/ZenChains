@@ -6,7 +6,7 @@
 
 **网站**
 
-#(https://lidafu.top)
+(https://zenchina.top)
 
 **语言**
 
